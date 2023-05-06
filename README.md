@@ -16,3 +16,4 @@ Your account has to be 13+
 And Apply at our discord https://discord.gg/ZhY6shBvME
 Remember please follow our rules. If you get banned or fired from our games. it's not our fault. Its yours. 
  <!---
+Some post coming soon.
