@@ -14,6 +14,5 @@ If your looking to contact me. And you want a job. Make sure you have the follow
 Sign up on roblox if you don't have an account.
 Your account has to be 13+
 And Apply at our discord https://discord.gg/ZhY6shBvME
-Remember please follow our rules. If you get banned or fired from our games. it's not our fault. Its yours. 
  <!---
 Some post coming soon.
